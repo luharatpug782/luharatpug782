@@ -1,2 +1,2 @@
 this my first web page.
-lat
+lat all copyright 
